@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **aliyuefe9501@gmail.com**
 
-- ⚡ Fun fact **I cook the best spaghetti, not.**
+- ⚡ Fun fact **I cook the best spaghetti.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
